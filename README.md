@@ -64,6 +64,7 @@ Butter \(80g\) schmelzen. Kekse \(450g\) zerbröseln.
 
 Salz \(1 Prise\), Vanillezucker \(1 Päckchen\) und Zucker \(2 TL\) mit den zerbröselten Keksen vermischen und die geschmolzene Butter unterrühren.
 Die Keksmasse in der vorbereiteten Springform verteilen und andrücken.
+
 ![Keksboden](img/keksboden.jpg)
 
 10 Minuten Backen. Auskühlen lassen und für mindestens eine Stunde in den Kühlschrank stellen.
