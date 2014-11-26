@@ -24,7 +24,7 @@ Es ist wichtig, dass alle Zutaten Zimmertemperatur haben.
 #### Zutaten Käsemasse
 
 * 8 Philadelphia Frischkäse
-* 350g Zucker
+* 300g Zucker
 * 60g Mehl
 * 1 El Speisestärke
 * 1 Päckchen Vanillezucker
@@ -58,11 +58,11 @@ Boden der Backform mit Backpapier auslegen.
 Backform bestmöglich mit Silberfolie abdichten.
 ![Form2](img/form2.jpg)
 
-Butter schmelzen. Kekse zerbröseln.
+Butter \(80g\) schmelzen. Kekse \(450g\) zerbröseln.
 ![Kekse1](img/kekse1.jpg)
 ![Kekse2](img/kekse2.jpg)
 
-Salz, Vanillezucker und Zucker mit den zerbröselten Keksen vermischen und die geschmolzene Butter unterrühren.
+Salz \(1 Prise\), Vanillezucker \(1 Päckchen\) und Zucker \(2 TL\) mit den zerbröselten Keksen vermischen und die geschmolzene Butter unterrühren.
 Die Keksmasse in der vorbereiteten Springform verteilen und andrücken.
 ![Keksboden](img/keksboden.jpg)
 
@@ -72,11 +72,11 @@ Die Keksmasse in der vorbereiteten Springform verteilen und andrücken.
 
 Backofen vorheizen auf Ober- Unterhitze 180 Grad.
 
-Philadelphia Frischkäse mit dem Handmixer cremig rühren.
-Zucker, Mehl, Speisestärke und Vanillezucker zuerst vermischen und dann mit dem Frischkäse mixen.
+Philadelphia Frischkäse \(8 Packungen\) mit dem Handmixer cremig rühren.
+Zucker \(300g\), Mehl \(60g\), Speisestärke \(1 EL\) und Vanillezucker \(1 Päckchen\) zuerst vermischen und dann mit dem Frischkäse mixen.
 Nicht zu lange mixen, nur bis die Zutaten vermischt sind!.
-Mark der Vanilleschote auskratzen und zu der Käsemasse geben.
-Eier, Saure Sahne und Zitronensaft dazu geben.
+Mark der halben Vanilleschote auskratzen und zu der Käsemasse geben.
+Eier \(2 Stück\), Saure Sahne \(200g\) und Zitronensaft \(1 TL\) dazu geben.
 Alles miteinander verrühren, nur so lange, bis alles vermischt ist.
 Käsemasse auf den vorbereiteten Keksboden geben und glatt streichen.
 Mit Aluminiumfolie abdecken.
@@ -91,7 +91,7 @@ Kuchen aus dem Ofen nehmen und auskühlen lassen.
 
 
 ### Topping
-Mascarpone, Saure Sahne, Zitronensaft, Salz und Zucker miteinander vermischen, auf den ausgekühlten Kuchen geben und glatt streichen.
+Mascarpone \(200g\), Saure Sahne \(200g\), Zitronensaft \(0,5 TL\), Salz \(1 Prise\) und Zucker \(40g\) miteinander vermischen, auf den ausgekühlten Kuchen geben und glatt streichen.
 
 ![Kuchen Fertig](img/kuchen_fertig.jpg)
 
