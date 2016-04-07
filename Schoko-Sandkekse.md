@@ -1,20 +1,23 @@
 Schoko-Heidesand (ergibt ca. 45 Stück):
 
-200 g Butter
-1 Vanilleschote
-1 TL feingeriebene Orangenschale
-120 g Muscovado-Zucker (ersatzweise brauner Zucker)
-1 Prise Salz
-250 g Mehl
-20 g Kakaopulver
-2-3 EL Schlagsahne
+* 200 g Butter
+* 1 Vanilleschote
+* 1 TL feingeriebene Orangenschale
+* 120 g Muscovado-Zucker (ersatzweise brauner Zucker)
+* 1 Prise Salz
+* 250 g Mehl
+* 20 g Kakaopulver
+* 2-3 EL Schlagsahne
 
-Zum Bestreichen/für die Kruste (0ptional):
-1 Eigelb
-1 EL Milch
-60 g Muscovado-Zucker
+Zum Bestreichen/für die Kruste (Optional):
+
+* 1 Eigelb
+* 1 EL Milch
+* 60 g Muscovado-Zucker
+
 Optional:
-etwas Fleur de Sel zum Bestreuen
+
+* etwas Fleur de Sel zum Bestreuen
 
 Zubereitung:
 
