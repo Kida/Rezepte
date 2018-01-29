@@ -1,6 +1,7 @@
 Schoko-Heidesand (ergibt ca. 45 Stück):
 
 * 200g Butter
+* ca. 4-5g Tee
 * 1 Vanilleschote
 * 1 TL feingeriebene Orangenschale
 * 120g brauner Zucker
@@ -15,7 +16,7 @@ Optional:
 
 Zubereitung:
 
-Die Butter langsam schmelzen. Vanilleschote längs aufschneiden. Das Mark herauskratzen und zusammen mit der Orangenschale zur Butter geben. Butter weiter erhitzen bis sie leicht bräunt. In eine Schüssel geben und abkühlen lassen bis die Butter wieder fest wird.
+Tee ganz fein hacken. Die Butter langsam schmelzen und Tee hinzufügen. Nicht zu heiss werden lassen (80-90 Grad), ca. 20 Minuten vor sich hin köcheln lassen. Vanilleschote längs aufschneiden. Das Mark herauskratzen und zusammen mit der Orangenschale zur Butter geben. Butter kurz weiter erhitzen bis sie leicht bräunt. In eine Schüssel geben und abkühlen lassen bis die Butter wieder fest (nicht stein-hart) wird.
 
 Butter, Zucker und das Salz mit dem Rührgerät 5 Minuten cremig aufschlagen. Dann Mehl, Kakao und Sahne unterkneten. Den Teig zu Rollen (oder Rechtecken) formen. In Folie eingewickelt mindestens 2 Std., besser über Nacht, kühlstellen.
 
